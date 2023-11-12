@@ -1,2 +1,2 @@
 # Ayan
-https://cyber-attack33.github.io/Ayan/
+https://cyber-attack33.github.io/ayan/
